@@ -1,6 +1,0 @@
-# Strogonoff :cactus:
-
-
-
-## Ingredientes
-
